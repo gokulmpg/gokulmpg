@@ -1,3 +1,4 @@
 - 👋 Hi, I’m @gokulmpg
 - An enthuastics data scientist and project management professional
 - reach out to me if you have interesting projects, colloboration or some challenging oppurtunities
+- Happy NewYear & Happy Christmas
